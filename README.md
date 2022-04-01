@@ -1,3 +1,5 @@
 ### Hey, I'm Keyfer 👋
 
-I live in Edmonton, Alberta, with my wonderful partner Sammy, and our dog Poppy. I care deeply about laughter, and feel an earnest desire to increase the stock of cheerfulness. 
+I feel an earnest and humble desire to increase the world's stock of happiness. 
+
+I'm an experienced engineering leader at 2x🦄, an angel investor, and an advisor.
